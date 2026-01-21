@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @neliyoavi
+- 👋 Hi,
 - 👀 I’m interested in collection my whole database and my education projects on the web  ..
 - 🌱 I’m currently learning to find my refrences eho dameged my data? 
 - 💞️ I’m looking to collaborate my cration on wordpress...
-- 📫 How to reach me: on my mail: neli.yoavi@icloud.com
+- 📫 
 
 - 😄 Pronouns: order my data snd to safe my privet data 
 - ⚡ Fun fact: ...
